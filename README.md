@@ -1,4 +1,4 @@
-##### Current Projects: [Custom New Tab Page](https://github.com/toaster08/my-new-tab).
+##### Current Projects: none
 ##### Email: posyhm08@gmail.com, posyhm08@protonmail.com
 
 
